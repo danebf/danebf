@@ -8,9 +8,3 @@
  intp-t   ‧  **minor**   ‧  gmt+8  ‧  filipino
  
 proudly taken by my handsome [boyfriend](https://github.com/Iovebite) <33333
-
-
-
-> i am very busy irl, i will not always be available.
-> 
-> links are prolly being remade soon
